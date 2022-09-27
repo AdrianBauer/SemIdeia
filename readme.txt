@@ -1,1 +1,1 @@
-eita bbs
+nascer creser namorar terminar trabalho aceitação trabalho promoção
